@@ -1,2 +1,2 @@
 # Lau
-Hi, my name is Lauris and I am here to learn to code :)
+Neverending passion for -> people + technology + code + wellbeing + growth & personal development + hospitality <-
